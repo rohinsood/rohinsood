@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rsrohinsood
-- 👀 I’m interested in coding, robotics, science, and cyber security
+- 👀 I’m interested in coding, robotics and science
 - 🌱 I’m currently learning as a freshman at Del Norte High
 
 <!---
