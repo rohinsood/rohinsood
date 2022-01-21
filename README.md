@@ -1,2 +1,3 @@
-**Hello there! I'm Rohin (⌐■_■)**
- - Fight me on chess.com :D, my @ is very hard to guess. 
+**Hello there! I'm Rohin --\(˙<>˙)/--**
+ - ✍️(◔◡◔)┏  Passionate about computer science, ethical hacking, robotics, and math and science olympiad!
+ - ╰（‵□′）╯ Fight me on chess.com :D (my username is very hard to guess).
